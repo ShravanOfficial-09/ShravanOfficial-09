@@ -187,8 +187,7 @@ Shri Ram Group of Colleges, Jabalpur
 
 | | |
 |---|---|
-| 📧 **Email** | Shravanbharti232@gmail.com |
-| 📱 **Phone** | +91 9302664812 |
+| 📧 **Email** | Shravanbharti232@gmail.com | Bhartishravan890@gmail.com
 | 💼 **LinkedIn** | [linkedin.com/in/shravan90804sb](https://linkedin.com/in/shravan90804sb) |
 | 🐙 **GitHub** | [github.com/ShravanOfficial-09](https://github.com/ShravanOfficial-09) |
 
